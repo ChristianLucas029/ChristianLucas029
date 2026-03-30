@@ -14,7 +14,6 @@
 | IA & ML    | 📈 Estudando |
 
 ---
-🚀 *"Buscando conhecimento para transformar o mundo com tecnologia!"*
 
 <div align="center">
 
